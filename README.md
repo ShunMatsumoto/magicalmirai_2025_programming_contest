@@ -1,0 +1,1 @@
+# magicalmirai_2025_programming_contest
